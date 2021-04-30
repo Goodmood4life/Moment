@@ -1,2 +1,2 @@
 # Moment
-Enjoy each Moment
+Life is NOW
